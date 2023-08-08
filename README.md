@@ -1,3 +1,5 @@
+Github를 통해서 다운로드를 받아주세요! (Github Desktop도 가능)
+
 2020년 7월 20일 구글 플레이스토어 출시
 
 1천회 다운로드 달성 https://play.google.com/store/apps/details?id=com.thegame.clicker&pli=1
