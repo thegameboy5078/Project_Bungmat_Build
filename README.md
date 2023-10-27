@@ -9,3 +9,8 @@ https://drive.google.com/file/d/1WBDvRu76Yu-FmSw6CklQhgIJKMVoEMFZ/view?usp=shari
 
 1천회 다운로드 달성 https://play.google.com/store/apps/details?id=com.thegame.clicker&pli=1
 ![d](https://github.com/thegameboy5078/Project_Bungmat_Build/assets/86096091/ec51ca0b-d14f-45bd-9164-4ab7b934be16)
+
+플레이 영상
+https://www.youtube.com/watch?v=Wvyc46OaFFs
+
+
